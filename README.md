@@ -30,10 +30,10 @@
 2.  I'm obsessed with K-dramas
 3.  My favorite creative tools are Adobe Photoshop and Figma!
 4.  I enjoy playing Nintendo games
-5.  I like both STEM and art 
+5.  I like both STEM and art 👩🏽‍💻
 
 
-Thanks for stopping by! Feel free to connect! 👩🏽‍💻🫧🪴
+Thanks for stopping by! Feel free to connect! 🫧
 ---
 
 ### 🌸 *"Life's better with a little bit of creativity and cuteness!"* 🌸
